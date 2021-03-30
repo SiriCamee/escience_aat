@@ -1,2 +1,2 @@
-# the members of our group are: Tareq
+# the members of our group are: Tareq, siri van Keulen
 
